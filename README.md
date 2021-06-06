@@ -1,5 +1,6 @@
 # 👋 Hello there, I’m Himansh
-======
+
+I'm an Engineer turned Analytics professional passionate about all things Analytics, Automation and Visualization. 
 
 I've lived in Melbourne and worked in the manfacturing and FMCG/retail industry for over 4 years. 
 
