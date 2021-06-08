@@ -2,7 +2,7 @@
 
 An Engineer turned Analytics professional passionate about all things Analytics, Automation and Visualization. 
 
-I've lived in Melbourne and worked in the manfacturing and FMCG/retail industry for over 4 years. 
+I live in Melbourne, Australia and have worked in the manfacturing and FMCG/retail industry for over 4 years. 
 
 👀 I’m interested in Analytics, Automation, Visualization and data-driven creative storytelling in Finance, Marketing and Sports. 
 
